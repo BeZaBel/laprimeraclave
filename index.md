@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Se define como la primera clave de la sabiduría una asidua y frecuente interrogación [...] Con  la duda llegamos a la investigación e investigando, percibimos la verdad.
